@@ -1,0 +1,2 @@
+# majarku
+majarku lamun
